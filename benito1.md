@@ -1,0 +1,1 @@
+dbie tirar mas fotos
